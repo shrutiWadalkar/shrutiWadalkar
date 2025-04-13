@@ -1,7 +1,7 @@
 
 # 👋 Hi, I'm Shruti Wadalkar
 
-🎓 **Educator | AI Explorer | Generative AI Specialist | Data Science Learner | Voiceover Artist | Interpreter**
+🎓 **Educator | AI Explorer | Generative AI Specialist | Data scientist | Voiceover Artist | Interpreter**
 
 ---
 
